@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @vishalkj2002<br>👀 I’m interested in gaming and coding<br>🌱 I’m currently learning game development and coding<br>📫 To connect with me on my social media accounts, follow this link: linktr.ee/vishalkj2002
+👋 Hi, I’m @vishalkj2002<br>👀 I’m interested in gaming and coding<br>🌱 I’m currently learning game development and coding<br>📫 To connect with me on my social media accounts, follow below links:
 
 
 ## 🌐 Socials:
